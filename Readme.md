@@ -72,3 +72,5 @@ about 1400$.
 > Please provide a repair quote itemized to proceed with your claim. Thank you.
 
 > ARC
+
+I am currently emailing a Austin and kelly who "alexis" told me I should email after calling and complaining about this absurd behavior. Will update with what they say.

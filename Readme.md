@@ -12,7 +12,7 @@ On May /1st/ 2021 an amazon driver ran over my mailbox, the day I went on vacati
 
 ![note](./assets/pic4.jpg)
 
-## His manager texted me I needed to contact amazon.
+## His manager texted me after I called the number and told me I needed to contact amazon.
 
 ![note](./assets/pic2.jpg)
 

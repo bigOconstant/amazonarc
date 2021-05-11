@@ -24,6 +24,8 @@ about 1400$.
 
 ## I submitted all this to arc and got the following email from a Madelon,
 
+May/7/2021
+
 > Hello,
 > We do need some type of estimate to compensate you! If completing the repairs yourself I will need an itemized repair product invoice. This can be done by submitting an online shopping cart screen shot depicting the total repair products needed. Please be advised we do not reimburse for tools or machinery. If you are going to hire someone make sure that you have the name, address and phone number of the person doing the work on that company's letterhead.
 > All the best,
@@ -32,11 +34,13 @@ about 1400$.
 
 ## So I replied,
 
+May/7/2021
+
 > I sent a image of estimate in text format. I'm attaching a more formal estimate. The price could change still of course.
 
 ![note](./assets/pic1.jpg)
 
-## Madelon
+## Madelon May/7/2021
 
 > Hello,
 
@@ -45,14 +49,14 @@ about 1400$.
 > Thank you,
 > ARC
 
-## me
+## me May/7/2021
 
 > No brick mason in my area offers itemized quotes. Only proposals such as this.  Thats just how much a new mail box costs when it's made out of brick. If that is a problem please let me talk to your manager. I have been calling brick masons all week and need a new mailbox to get my mail.
 
 
 > I am going to have to wait to get reimbursed for the mail box Amazon destroyed?  I've sent you all the evidence and quotes you need.
 
-## Madelon: 
+## Madelon: May/10/2021
 
 > Hello,
 
@@ -61,11 +65,11 @@ about 1400$.
 > Thank you,
 > ARC
 
-## Me 
+## Me May/10/2021
 
 > No Stone mason will give me an itemization. You will proceed with my estimates or receipts or proceed with my bill and my lawyers bills. Give me a phone number to your manager.
 
-## Madelon:
+## Madelon: May/11/2021
 
 > Helllo,
 

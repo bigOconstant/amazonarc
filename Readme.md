@@ -34,7 +34,7 @@ about 1400$.
 
 > I sent a image of estimate in text format. I'm attaching a more formal estimate. The price could change still of course.
 
-![note](./assets/pic2.jpg)
+![note](./assets/pic1.jpg)
 
 ## Madelon
 

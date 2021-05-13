@@ -78,3 +78,27 @@ May/7/2021
 > ARC
 
 I am currently emailing a Austin and kelly who "alexis" told me I should email after calling and complaining about this absurd behavior. Will update with what they say.
+
+## Scott Austin Claims Supervisor email May/12th/2021
+
+> Hello Caleb,
+
+> I will gladly look into this for you. Can you please provide your claim number so I can review the claim?
+
+## Me: May/12/th/2021
+
+> Sure,
+
+>  My claim number is AMZ2021101330
+
+## ARC, Scott or madelon? May/13nth/2021
+
+> Can you please advise what the cost of labor is?
+
+> Thank you,
+> ARC
+
+## Me May/13nth/2021
+
+> That official Quote I gave you is from Omega Masonry in Mckinney TX. Their phone number is  469 - 777-1752. You can call them and ask them yourself. They do not themselves separate the cost of brick and labor. I have text messages to show such. If you like you can divide the qoute however you want between labor and non labor. Of all the masons I called None would separate the cost. I have another quote for 3,000 from Daniel at Brick Repairs by Daniel Mcfarland in Wylie texas if you would rather call him at 214-315-2523. 
+

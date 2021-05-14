@@ -102,3 +102,34 @@ I am currently emailing a Austin and kelly who "alexis" told me I should email a
 
 > That official Quote I gave you is from Omega Masonry in Mckinney TX. Their phone number is  469 - 777-1752. You can call them and ask them yourself. They do not themselves separate the cost of brick and labor. I have text messages to show such. If you like you can divide the qoute however you want between labor and non labor. Of all the masons I called None would separate the cost. I have another quote for 3,000 from Daniel at Brick Repairs by Daniel Mcfarland in Wylie texas if you would rather call him at 214-315-2523. 
 
+
+## Me May/14nth/2021
+
+> Dear Scott, Kelly, Amazon Arc,
+
+> It is now May 14nth, two weeks after amazon destroyed my HOA mandated
+> brick mailbox. You have asked me 5 times if I could provide a itemized
+> quote. and 5 times I have replied that no stone mason in my area
+> provides such quotes however I have provided you with quotes from stone
+> masons who show the total cost and I can provide others if you need. You
+> can see this detailed in my blog here
+> https://github.com/bigOconstant/amazonarc , my twitter profile here
+> https://twitter.com/caleb24686539 , and my reddit post here
+> https://www.reddit.com/r/mildyinfuriating/comments/nbhyfs/an_amazon_driver_knocked_over_my_mailbox/
+
+
+> You have given me no indication that you will compensate me. If you
+> cannot or will not compensate me for the damages done to my home by your
+> driver I will have no other choice but to take my case small claims
+> court where a judge will surely side with me and my shattered mailbox. I
+> hope you will offer some sort of resolution or path to resolution soon
+> so I know that you are doing something other then sending useless emails
+> once a day asking the same question.
+
+> Thank you for your time,
+
+> -Caleb McCarthy-
+
+> 7112 Bryce Canyon Dr,
+> McKinney TX
+> 75072

@@ -120,7 +120,7 @@ I am currently emailing a Austin and kelly who "alexis" told me I should email a
 
 > You have given me no indication that you will compensate me. If you
 > cannot or will not compensate me for the damages done to my home by your
-> driver I will have no other choice but to take my case small claims
+> driver I will have no other choice but to take my case to small claims
 > court where a judge will surely side with me and my shattered mailbox. I
 > hope you will offer some sort of resolution or path to resolution soon
 > so I know that you are doing something other then sending useless emails
